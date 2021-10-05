@@ -1,1 +1,0 @@
-# Adja-Fatou-Diop
